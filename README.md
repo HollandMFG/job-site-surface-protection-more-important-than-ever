@@ -1,3 +1,5 @@
+JOB SITE SURFACE PROTECTION – MORE IMPORTANT THAN EVER
+
 With the ever-rising cost of labor and materials, unexpected damage leading to replacing or repairing finished surfaces on the job site is a disaster for contractors. Proper surface protection on the job site is a necessity for all quality-oriented, financially wise contractors.
 
 The days of throwing down a $5 roll of red rosin paper to protect the floor are over. Prudent contractors are turning to more premium surface protection solutions to save time and protect their bottom line.
